@@ -1,4 +1,4 @@
-# Escape-from-Troy
+# Escape from Troy
 
 ![interior_virgil_aeneid_aeneas_fleeing_troy](https://github.com/user-attachments/assets/06963bda-23c7-42a2-8fa5-3e098f2270a7)
 
